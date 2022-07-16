@@ -1,2 +1,0 @@
-# WEB DESIGN DIGITAL RESUMÉ
- Resume 2
